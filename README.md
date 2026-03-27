@@ -1,0 +1,1 @@
+# KGM-Barrick-Tele-declaration-IPR
